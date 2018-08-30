@@ -1,2 +1,0 @@
-# IFTS-16-2
-PROYECTO 2
